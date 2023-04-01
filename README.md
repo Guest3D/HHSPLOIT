@@ -1,2 +1,3 @@
 # HOW TO DOWNLOAD IT
-now
+⚠TURN OFF ANTI VIRUS⚠
+Click Code Then Download Zip 
